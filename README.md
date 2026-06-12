@@ -7,6 +7,13 @@ gay coworker said he got dibs on me #WhatDatMean
 number 15, burger king foot lettuce. the last thing you'd want in your burger king burger is someone's foot fungus, but as it turns out that might be what you get
 
 the secret that major chain industries actually dont want you to know:
+
+how much is the tung tung tung sahur happy meal 
+- Sixty nine dollars, sixty nine cents.
+
+SIXTYNINE SIXTYNINE !!/?/?
+- What I do to your mother.
+
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=enakasa&label=fans&color=D9A44E">
 </p>
