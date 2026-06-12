@@ -8,6 +8,8 @@ number 15, burger king foot lettuce. the last thing you'd want in your burger ki
 
 the secret that major chain industries actually dont want you to know:
 
+Sixty seven was once a child yknow.
+
 how much is the tung tung tung sahur happy meal 
 - Sixty nine dollars, sixty nine cents.
 
