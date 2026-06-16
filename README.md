@@ -28,3 +28,5 @@ ac : lemontartss74 on twt
  
   
 how r u (me) a niigo in-unit monoshipper yet still be an enakasa and mizurui fanatic 🤣 boy it dont make sense 🤣🤣🤣
+
+i will burn down colorful palette's buildings if we dont get an enakasa event or interaction soon. dont even joke lad. 
